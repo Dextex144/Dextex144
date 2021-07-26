@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dextex144
+- 👀 I’m interested in osu
+- 🌱 I’m currently learning how to be a good person
+- 💞️ I’m looking to collaborate on osu skins
